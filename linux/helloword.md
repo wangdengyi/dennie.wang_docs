@@ -1,4 +1,0 @@
-# hello linuaaaaax
-fasfdasdfasdfdfdasdf
-fasfasdfsdd
-asfsafsdfddfdsfd
